@@ -1,2 +1,5 @@
-# playgd-mobi-golden-dragon-free-credits-cheats-money-hacks
-Playgd mobi golden dragon free credits Cheats add money Hacks codes guide
+# Playgd mobi golden dragon free credits Cheats add money Hacks codes guide
+
+Playgd mobi golden dragon free credits Cheats add money Hacks codes guide - Redouble your efforts and stay longer! If you have completed enough tasks in the Royal Castle, you can unlock a new level called Dragon Palace. You can also buy them for 99 cents if you want. Note that the Holy Ruins will be added later in the separate update of the game. Once they are added, I hope to play them after defeating the Dragon Temple quest. First, the game will automatically be set to use touch control, which means you can touch the left side of the screen to move to the left, and then firmly touch the right side of the screen to move to the right. If you go to the options menu, you can set it as a tilt control instead of a touch control. This may be easier if you are used to tilting games, but it is usually easier to touch control if you are not. golden dragon game promo code 2023
+
+[see here](https://fifamcheat.top/golden-dragon/)
